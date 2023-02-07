@@ -1,4 +1,4 @@
-# Bem vindes !  :tada: 
+# Bem vindos !  :tada: 
 
 Que bom que chegou até aqui! Conte um pouco mais sobre você. Você pode seguir o modelo: 
 
